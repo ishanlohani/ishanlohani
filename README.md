@@ -11,11 +11,13 @@ Hollow knight is my cup of Coffee, its something I have a love / hate relationsh
 
 Thing about me :-
 
-- I have a dog, his name is Shere, pronounced ʃɛreɪ
+- I have a dog (you already saw him), his name is Shere, pronounced 'ʃɛreɪ',
 - I don't have a cat, but if i ever do his name is gonna be Max, 
-- I talk a lot
-- I am a generalist ( i.e  I lack long-term commitment to anything )
+- I talk a lot,
+- I am a generalist ( i.e  I don't have anything important to do ),
 - I like reading, I just read anything, excluding Horror or smut, both of them scare me, the latter one more.
+
+Yeah that's about everything about me, nothing interesting right ? Yeah, that's the reason I am here, to make something interesting  maybe one day I will have some interesting projects here, lets just see till then.
 
 Hope you are having a good day, and may your whole week go by well, See ya.
 
